@@ -2,3 +2,5 @@
 3º Informática Matutino
 
 Thayla Fernanda Gomes Pereira
+
+Gleice Kely Neves Judici
